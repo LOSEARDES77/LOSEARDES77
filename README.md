@@ -2,5 +2,4 @@
 - 👀 I’m interested in learning everything i can
 - 💞️ I’m looking to collaborate on somthing
 - 📫 Contact me on discord LOSEARDES77#7870
-- ❗  Need help with a .apk thing (Context: i'm diabetic and need to modifi an existing app i have a tutorial but need help)
 - 🌍 I'm Spanish
