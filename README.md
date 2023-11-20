@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @LOSEARDES77
-- 👀 I’m interested in learning everything i can
 - 💞️ I’m looking to collaborate on somthing
-- 📫 Contact me on discord LOSEARDES77#7870
+- 📫 Contact me on discord loseardes77
 - 🌍 I'm Spanish
